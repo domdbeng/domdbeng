@@ -12,5 +12,5 @@ I plan to document my project journeys along with uploading experiments, reasear
 
 ### Fun Facts
 - ⚽️ I play for Haiti's U20 Women's National Team
-- 📺 I love Blue Lock and JJK
+- 📺 I love early 2000s movies 
 - 💰 Sold my first ever app at 15 
